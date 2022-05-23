@@ -1,0 +1,1 @@
+Mais où suis-je ? Je ne reconnais pas cet endroit… Comment suis-je arrivé ici ? Me serais-je perdu ? Toute cette verdure… est-ce que je suis encore en ville ? Non, il n’y a personne autour de moi, c’est étrange. Peut-être que traverser ce tunnel me permettra de trouver quelqu’un.
